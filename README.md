@@ -1,4 +1,4 @@
 # Anugoonj2020
 CLICK HERE : 
-https://anugoonj-ipu.com/
+https://unnatmalkoti.github.io/anugoonj-2020/index.html
 
